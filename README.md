@@ -3,7 +3,7 @@
 Hi, I’m Vidhu — a passionate designer with a knack for creating clean, bold, and purpose-driven visuals. From branding college clubs to designing intuitive app interfaces, this portfolio highlights my journey through design challenges and creative problem-solving.
 
 📌 **View Full Portfolio on Behance**  
-👉 [behance.net/yourusername](https://www.behance.net/vidhuvinod2)
+👉 [behance.net/yourusername](https://www.behance.net/gallery/218525997/portfolio)
 
 ---
 
